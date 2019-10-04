@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. 
 2. Kormuth Matej
-3. 
+3. Krempaská Iveta
 4. 
 
