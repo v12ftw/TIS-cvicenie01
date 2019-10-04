@@ -12,7 +12,7 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1. 
+1. Slim Shady
 2. Kormuth Matej
 3. 
 4. 
