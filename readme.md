@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Slim Shady
 2. Kormuth Matej
 3. Krempaská Iveta
-4. 
+4. Peter Tamáš
 
